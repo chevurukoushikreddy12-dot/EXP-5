@@ -31,7 +31,17 @@ OBSERVATIONS:
 
 REGULATION CHARACTERISTICS:
 
+
+
+![WhatsApp Image 2025-10-30 at 21 06 38_3c5a744e](https://github.com/user-attachments/assets/f9e9aa0f-e0df-4832-b56c-28952ca53a6d)
+
+
+
+
 V-I & REGULATION CHARACTERISTICS:
+
+![WhatsApp Image 2025-10-30 at 21 07 10_449bee4b](https://github.com/user-attachments/assets/033b2feb-db9b-45f9-8017-5a66e1f58e18)
+
 
 PRECAUTIONS:
 
